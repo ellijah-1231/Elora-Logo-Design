@@ -55,7 +55,7 @@ The goal of this logo design is to establish a strong visual identity for a natu
 - Marketing Materials
 
 ## Author
-**Ellie**
+**Ellijah**
 B.Tech Student | Graphic Design Intern | Canva Designer
 
 ## Preview
